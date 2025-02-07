@@ -1,14 +1,4 @@
 
-
-
-
-
-![a257edd7e84929d2022f9a4338a0be31](https://github.com/user-attachments/assets/799672ed-61be-4aba-bae9-8e364bc46c90)
-
-
-
-
-
 # Donate
 
 - USDT|TRON=TBGvBmhhksyZarfzmiiHqRwMCqHm17C4mt
